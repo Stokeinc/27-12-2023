@@ -1,7 +1,3 @@
-photo_2023-12-27_14-59-16.jpg
-photo_2023-12-27_14-59-21.jpg
-photo_2023-12-27_14-59-24.jpg
-photo_2023-12-27_14-59-30.jpg
 # ⚡️💪 Four tools for today
 
 # 1. Hammer Drill Showdown: Makita vs. Bosch! 🔨🔧
@@ -98,7 +94,7 @@ Carve, create, conquer! 🌲🔨
 # 4. Jigsaw Extravaganza! 🔪✨
 
 Introducing the Makita and Bosch Jigsaws – your go-to tools for precision cutting and crafting wonders! Whether you're into intricate designs or straight-line cuts, these jigsaws are your ticket to woodworking excellence. 🪚🌟
-![Hammer drill](photo_2023-12-27_14-59-24.jpg)
+![Hammer drill](photo_2023-12-27_14-59-30.jpg)
 
 ## Makita Jigsaw | Bosch Jigsaw
 
