@@ -34,3 +34,37 @@ Get ready to unleash the power of Thor's hammer in your DIY adventures with thes
 - **Inbox: @davedave77 ** telegram.
 
 Get ready to drill, baby, drill! 🔩💥
+
+# 2.Plastic Sealer Magic! ✨
+
+"የምን በሻማ መቃጠል!!!"
+
+Unveiling the extraordinary Plastic Sealer that's here to revolutionize your packaging game! Whether you're sealing bags of snacks or preserving the freshness of your favorite goodies, this Plastic Sealer is your ultimate companion. 🔒🍬
+
+![Hammer drill](photo_2023-12-27_14-59-21.jpg)
+
+## Features:
+
+- **Sealing Power:** Unleash the magic with precise sealing!
+- **Sealer Type:** Kitchen Savior and Portable Wonder
+- **Use Cases:** Perfect for sealing plastic bags and keeping your snacks safe.
+- **Size Options:** Choose from large or medium sizes based on your sealing needs.
+- **Price:**
+  - Large: 3700 ብር
+  - Medium: 3500 ብር
+
+👇 **For Detailed Photos & Videos, Click the link below** 👇  
+[LiYu Tools Telegram Channel](https://t.me/liyutoolsl)
+
+🔥 **Experience the 🔥:**
+For those who love their seals with a touch of flair, click the link above to witness the sealing magic in action!
+
+🛵 **Free Delivery:** Yes, you read that right! Enjoy free delivery right to your doorstep. 🚚🎉
+
+🛒 **Order Now:**
+To get your hands on these amazing Plastic Sealers, slide into our DMs or click the link above!
+
+📞 **Contact Us:**
+☎️: # (Insert your contact number here)
+  
+Seal it, feel it, love it! 💖🌐
