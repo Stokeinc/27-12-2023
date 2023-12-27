@@ -2,8 +2,9 @@ photo_2023-12-27_14-59-16.jpg
 photo_2023-12-27_14-59-21.jpg
 photo_2023-12-27_14-59-24.jpg
 photo_2023-12-27_14-59-30.jpg
+# ⚡️💪 Four tools for today
 
-# Hammer Drill Showdown: Makita vs. Bosch! 🔨🔧
+# 1. Hammer Drill Showdown: Makita vs. Bosch! 🔨🔧
 
 Get ready to unleash the power of Thor's hammer in your DIY adventures with these electrifying hammer drills from the legendary houses of Makita and Bosch! ⚡️💪
 
