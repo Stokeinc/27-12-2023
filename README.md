@@ -26,7 +26,7 @@ Get ready to unleash the power of Thor's hammer in your DIY adventures with thes
 - **Bosch:**  Bosch - 7700birr, because Bosch believes in affordability
 
 **ያሉበት በነጻ እናደርሳለን!**
-📞 **Call us +2519549387!**
+📞 **Call us +251954938537**
 - **Inbox: @davedave77 ** telegram.
 
 Get ready to drill, baby, drill! 🔩💥
