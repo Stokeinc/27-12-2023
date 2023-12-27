@@ -3,8 +3,6 @@ photo_2023-12-27_14-59-21.jpg
 photo_2023-12-27_14-59-24.jpg
 photo_2023-12-27_14-59-30.jpg
 
-![Hammer drill](photo_2023-12-27_14-59-16.jpg)
-
 # Hammer Drill Showdown: Makita vs. Bosch! 🔨🔧
 
 Get ready to unleash the power of Thor's hammer in your DIY adventures with these electrifying hammer drills from the legendary houses of Makita and Bosch! ⚡️💪
@@ -27,8 +25,8 @@ Get ready to unleash the power of Thor's hammer in your DIY adventures with thes
 
 ## Pricing:
 
-- **Makita:** ታይቷል አዲስ አበባ! (Translation: Makita - 8000birr, because quality comes with a price)
-- **Bosch:** አዲስ አበባ የገና ገመድ! (Translation: Bosch - 7700birr, because Bosch believes in affordability)
+- **Makita:** Makita - 8000birr, because quality comes with a price
+- **Bosch:**  Bosch - 7700birr, because Bosch believes in affordability
 
 **ያሉበት በነጻ እናደርሳለን!**
 📞 **Call us +2519549387!**
