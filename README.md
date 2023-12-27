@@ -65,6 +65,34 @@ For those who love their seals with a touch of flair, click the link above to wi
 To get your hands on these amazing Plastic Sealers, slide into our DMs or click the link above!
 
 📞 **Contact Us:**
-☎️: # (Insert your contact number here)
+☎️: # 0954938537
   
 Seal it, feel it, love it! 💖🌐
+
+# 3. Ultimate Router Wonderland! 🌐🔧
+
+Embark on a journey through the realm of routers, where connectivity and precision unite! Whether you're carving out masterpieces or crafting intricate designs, our routers are here to elevate your woodworking game. 🪚✨
+
+![Hammer drill](photo_2023-12-27_14-59-24.jpg)
+
+## Features:
+
+- **Routing Excellence:** Unleash the power of precision routing!
+- **Versatility:** Perfect for shaping, engraving, and crafting wood.
+- **Variable Speed Control:** Tailor the speed to match your creative flow.
+- **Voltage:** 220V (because we believe in electrifying experiences!)
+- **Power:** 1200W (for a surge of creative energy)
+  
+## Pricing:
+
+- **Bosch 1200W:** 5000birr (where quality meets affordability)
+- **Makita 1200W:** 4900birr (because precision doesn't have to break the bank)
+
+### 🚚 **Free Delivery:**
+Yes, you heard it right! We deliver your woodworking dreams right to your doorstep. 🌐🎁
+
+📞 **Contact Us:**
+Call us at 0954938537 for all your router-related inquiries.
+
+Carve, create, conquer! 🌲🔨
+
