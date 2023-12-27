@@ -95,4 +95,26 @@ Yes, you heard it right! We deliver your woodworking dreams right to your doorst
 Call us at 0954938537 for all your router-related inquiries.
 
 Carve, create, conquer! 🌲🔨
+# 4. Jigsaw Extravaganza! 🔪✨
+
+Introducing the Makita and Bosch Jigsaws – your go-to tools for precision cutting and crafting wonders! Whether you're into intricate designs or straight-line cuts, these jigsaws are your ticket to woodworking excellence. 🪚🌟
+![Hammer drill](photo_2023-12-27_14-59-24.jpg)
+
+## Makita Jigsaw | Bosch Jigsaw
+
+- **Power:**
+  - Makita: 600W
+  - Bosch: 580W
+
+- **Price:**
+  - Makita: 4200 birr
+  - Bosch: 4500 birr
+
+### 🚚 **Free Delivery:**
+Yes, you heard it right! We bring your woodworking dreams to your doorstep. 🌐🎁
+
+📞 **Contact Us:**
+- Call 0954938537
+
+Craft, cut, conquer! 🌲🪚
 
