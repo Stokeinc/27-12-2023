@@ -1,0 +1,15 @@
+<head>
+    <!-- Basic Meta Tags -->
+    <meta charset="utf-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1, shrink-to-fit=no">
+    <meta name="description" content="Your tool description goes here.">
+    
+    <!-- Open Graph Meta Tags -->
+    <meta property="og:title" content="Hammer Drill">
+    <meta property="og:description" content="Your tool description goes here.">
+    <meta property="og:image" content="https://www.facebook.com/photo?fbid=884687476689056&set=a.884687623355708">
+   
+    
+    <!-- Other Meta Tags -->
+    <meta name="twitter:card" content="summary_large_image">
+</head>
